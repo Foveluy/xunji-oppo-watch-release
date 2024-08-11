@@ -1,1 +1,1 @@
-# xunji-oppo-watch-release
+# 训记 oppo-watch APK 下载
